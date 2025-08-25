@@ -1,0 +1,1 @@
+immediate deposits up to $50,000 in checking accounts of zero(0), and sdk accounts from the current file originating from the original file. merge two read me certificates formatted from MYDEVICE with this one.
